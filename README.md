@@ -1,0 +1,3 @@
+- 👋 Selam! Ben Esila.
+- 👀 10.Sınıf Radyo-Televizyon öğrencisiyim.
+- 🌱 Bitkim 'tatlı biber'
